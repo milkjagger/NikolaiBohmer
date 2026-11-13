@@ -12,3 +12,6 @@ Other writers own the thoughts and actions of their own characters. Do not inven
 
 ## OPEN
 Shared housing details and dates; meeting at host club; specific breakup chronology and present terms with Darla; exact date of the Berlin rave with Addison; other past-relationship details. Preserve the supplied spelling **Apehlios**, noting alternate **Aphelios** occurs in a separate Bunny bio.
+
+## CANON · Sexual preferences
+- **Nikolai is a switch.** His role can vary by partner and encounter. During his one-night stand with Addison in Berlin, he was the top. That particular encounter does not define an exclusive preference.
