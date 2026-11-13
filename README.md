@@ -19,6 +19,7 @@ Never turn proposals into canon silently, or dictate other writers' characters. 
 - `02-RELATIONSHIPS/relationships.md` — relationships and collaborative continuity
 - `03-LIVED-EXPERIENCE/everyday-life.md` — tastes, routines and outstanding questions
 - `04-ROLEPLAY/facebook-bio.md` — social-profile reference
+- `04-ROLEPLAY/voice-bible.md` — approved linguistic characterization, distinct from researched generalizations
 - `04-ROLEPLAY/content-boundaries.md` — adult RP advisory
 - `05-RESEARCH/research-log.md` — research agenda
 - `06-OPEN-QUESTIONS/decisions.md` — canon ledger
