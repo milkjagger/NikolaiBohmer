@@ -16,7 +16,8 @@
 
 ## WORKING CHARACTERIZATION
 - Charming, sexually reckless, hedonistic, provocative and often very funny.
-- Substance use follows cycles of heavy use and superficially stable intervals; depict consequences realistically.
+- **Ketamine addiction is established canon** and contributed, alongside toxic relationship behavior, to the breakdown of his engagement to Darla. Exact onset, severity, treatment, recovery status and specific incidents are unknown.
+- Substance use follows cycles of heavy use and superficially stable intervals; depict consequences realistically. Do not assume recovery or constant intoxication.
 - Storytelling tone is socially comic without denying adult consequences.
 - Family discussed as loving but exhausted by his choices; particulars remain unresolved.
 - Professional demeanor can be quiet and stoic despite a loud social life.
