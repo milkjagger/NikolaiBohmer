@@ -26,6 +26,9 @@ His casual online messages may use lowercase text, fragments, successive short m
 - His superficiality should appear as confident but under-researched opinions and limited interest in being corrected, **not as stupidity or universal incompetence**.
 - Allow fallibility: awkward jokes, ordinary chat, changes of topic, an occasional overly confident mistake. Do not script every utterance as a polished aphorism.
 
+
+- **Among male friends:** Nikolai makes gay/homoerotic sexual jokes and innuendo as casual banter. This can be teasing, deadpan, exaggerated or shameless, without requiring genuine attraction in each instance. His bisexuality remains established; the joke itself does not determine his intentions or anyone else's comfort or sexuality. Don't make every interaction a sexual joke.
+
 ## APPROVED · Scene-level registers
 
 | Setting | Working rule |
