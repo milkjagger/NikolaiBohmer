@@ -22,6 +22,14 @@
 - Family discussed as loving but exhausted by his choices; particulars remain unresolved.
 - Professional demeanor can be quiet and stoic despite a loud social life.
 
+
+## CANON: superficial interests and shallow general knowledge
+- Nikolai is deliberately characterized as **shallow, surface-level, and somewhat superficial**. He has many genuine interests but often knows surprisingly little about their history, meaning or surrounding context.
+- His taste, social confidence and strongly expressed opinions can exceed his factual knowledge. He likes experiences, looks, sounds and cultural status without routinely researching them.
+- **This is not an assertion that he is unintelligent, ignorant about everything, or pretending to enjoy what he likes.** The pleasure and aesthetic judgment can be sincere even when the intellectual engagement is thin.
+- **Photography is the important exception:** his established passion and practical skill should remain credible. Technical competence can coexist with limited interest in theory, criticism or art history; precise limits remain to be developed.
+- The specific examples of not knowing a band's nationality, bluffing about literature, superficial politics, and poorly understood travel are **PROPOSED illustrations**, not individually approved events or beliefs.
+
 ## SELECTED / PENDING REVIEW
 ESTP · Choleric-Sanguine · Chaotic Neutral · Avoidant attachment.
 
