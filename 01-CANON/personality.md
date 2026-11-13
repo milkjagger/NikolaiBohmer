@@ -30,6 +30,9 @@
 - **Photography is the important exception:** his established passion and practical skill should remain credible. Technical competence can coexist with limited interest in theory, criticism or art history; precise limits remain to be developed.
 - The specific examples of not knowing a band's nationality, bluffing about literature, superficial politics, and poorly understood travel are **PROPOSED illustrations**, not individually approved events or beliefs.
 
+
+- **Sexual humor with male friends:** Nikolai regularly makes gay or homoerotic sexual jokes with his male friends as part of his irreverent, comfortable, provocative banter. This is a recurring mannerism, not a claim about any particular friend's sexuality, attraction, or response. Nikolai remains canonically bisexual.
+
 ## SELECTED / PENDING REVIEW
 ESTP · Choleric-Sanguine · Chaotic Neutral · Avoidant attachment.
 
